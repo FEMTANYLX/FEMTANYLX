@@ -1,3 +1,3 @@
 # ‎𓏼˚̣̣̣𐂯 
 
-$\color{#c42b91}{\normalsize{\texttt{Work In Progress !}}}$
+$\color{#289ede}{\normalsize{\texttt{Work In Progress !}}}$
