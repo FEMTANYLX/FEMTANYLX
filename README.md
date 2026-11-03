@@ -1,2 +1,2 @@
 # Work In Progress 
-*won't uptade this daily*
+$\color{#c42b91}{\normalsize{\texttt{*won't uptade this daily*}}}$
