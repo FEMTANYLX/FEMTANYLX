@@ -13,4 +13,4 @@
 
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/924e9b6b-60e1-4743-943b-6fe2ea984525" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ad6c0042-5ba4-4c35-83f3-a949fbc8c70c" /> <img width="97" height="57" alt="Image" src="https://github.com/user-attachments/assets/fb8ce417-1f05-405d-984b-b3b8527f9314" />
 
-   $\color{#289ede}{\normalsize{\texttt{. . .𑄝 ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨ 𑄝 . . .}}}$
+   $\color{#1ac9f0}{\normalsize{\texttt{. . .𑄝 ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨ 𑄝 . . .}}}$
