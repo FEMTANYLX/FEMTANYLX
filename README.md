@@ -1,7 +1,7 @@
 # ‎𓏼˚̣̣̣𐂯 
 
 
-  $\color{#289ede}{\normalsize{\texttt{Work In Progress !}}}$
+  $\color{#289ede}{\normalsize{\texttt{Better viewed on phone ;-; }}}$
 
 <img width="374" height="211" alt="Image" src="https://github.com/user-attachments/assets/201beedd-902a-4e1c-bb57-62d4c97e191a" />
 
