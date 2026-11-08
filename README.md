@@ -13,5 +13,3 @@
 
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/924e9b6b-60e1-4743-943b-6fe2ea984525" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ad6c0042-5ba4-4c35-83f3-a949fbc8c70c" /> <img width="97" height="57" alt="Image" src="https://github.com/user-attachments/assets/fb8ce417-1f05-405d-984b-b3b8527f9314" />
 
-<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/5a48a90b-faaa-4fb4-90f1-27748362c1f9" />   $\color{#1ac9f0}{\normalsize{\texttt{. . .𑄝 ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨ 𑄝 . . .}}}$ <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/a61edf12-fd66-4f4f-8597-c006cef440c0" />
-
