@@ -13,4 +13,4 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jhsym3vrkp7y2gyje4ry3vov2y&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=59e3de&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31jhsym3vrkp7y2gyje4ry3vov2y&redirect=true)
 
-[𑄝. Strawpage ](https://tsunqmii.straw.page/)  ੭﹕﹒ [𑄝. Ata Book ](https://tsunqmi.atabook.org/) !!
+[𑄝. Strawpage ](https://tsunqmii.straw.page/)  ੭. [𑄝. Ata Book ](https://tsunqmi.atabook.org/)!! . [𑄝. Prns ](https://en.pronouns.page/@Nqmiwww) 𖹭 ֶָ֢
