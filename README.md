@@ -7,4 +7,4 @@ $\color{#f06d4f}{\normalsize{\texttt{੭﹕﹒   .}}}$ [𑄝.](https://tsunqmi.a
 
 
 
-— 5teen , +17 iwc . 
+$\color{#edc487}{\normalsize{\texttt{— 5teen , +17 iwc . }}}$
