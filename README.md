@@ -10,7 +10,7 @@
 
 𖹭 ֶָ֢ Nami
 
-𖹭 ֶָ֢ Cyruz
+𖹭 ֶָ֢ Tsunami
 
 𖹭 ֶָ֢ Any of my fickins !
 
