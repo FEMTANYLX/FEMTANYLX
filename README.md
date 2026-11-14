@@ -10,3 +10,5 @@ $\color{#f06d4f}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
 
 
 $\color{#edc487}{\normalsize{\texttt{— 5teen , +17 iwc . }}}$
+
+<img width="601" height="21" alt="Tumblr-l-131551986353305" src="https://github.com/user-attachments/assets/50bfb44b-d98f-4a3c-9bab-23fff5a76b48" />
