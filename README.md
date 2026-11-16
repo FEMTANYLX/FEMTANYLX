@@ -11,4 +11,5 @@ $\color{#962cab}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
 
 <img width="731" height="60" alt="blue" src="https://github.com/user-attachments/assets/143877b5-0cd2-4097-92c8-5cec272db937" />
 
-<img width="200" height="150" alt="123 sin título_20261115150348" src="https://github.com/user-attachments/assets/2e0034d7-f69e-4cc7-ba7e-fc44c457a33d" /> <img width="99" height="100" alt="124 sin título_20261116063242" src="https://github.com/user-attachments/assets/9c01c8b2-b11d-4a53-bc4a-418d1512259c" />
+<img width="200" height="150" alt="123 sin título_20261116064207" src="https://github.com/user-attachments/assets/48629cb1-07ad-49d4-8712-d4ae9cf7d269" /><img width="99" height="100" alt="124 sin título_20261116063242" src="https://github.com/user-attachments/assets/9c01c8b2-b11d-4a53-bc4a-418d1512259c" />
+
