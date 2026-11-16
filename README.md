@@ -9,7 +9,7 @@
 
 $\color{#962cab}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.atabook.org) $\color{#3bc0cc}{\normalsize{\texttt{𝐀𝐭𝐚𝐛𝐨𝐨𝐤 . }}}$ $\color{#db449a}{\normalsize{\texttt{‎𓏼𐂯 .  𓂃 .}}}$ [𖹭 ֶָ֢](https://tsunqmii.straw.page) $\color{#3bc0cc}{\normalsize{\texttt{𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞 .}}}$
 
-
+<img width="731" height="60" alt="blue" src="https://github.com/user-attachments/assets/143877b5-0cd2-4097-92c8-5cec272db937" />
 
 
 
