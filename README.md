@@ -1,5 +1,5 @@
 # (˶ - ᆺ -˶ )
-> ignore the fact that i delete everything everyday ok i cannot decide
+> work in progress
 
 
 <img width="1494" height="1067" alt="122 sin título_20261115005501" src="https://github.com/user-attachments/assets/1df47764-71b0-4112-bfe7-a76b726a5f49" />
