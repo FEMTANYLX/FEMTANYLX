@@ -11,3 +11,4 @@ $\color{#962cab}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
 
 <img width="731" height="60" alt="blue" src="https://github.com/user-attachments/assets/143877b5-0cd2-4097-92c8-5cec272db937" />
 
+<img width="1418" height="636" alt="124 sin título_20261116200831" src="https://github.com/user-attachments/assets/b8abdf4b-f914-4d31-9396-911f3e02953c" />
