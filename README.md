@@ -11,4 +11,4 @@ $\color{#962cab}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
 
 <img width="731" height="60" alt="blue" src="https://github.com/user-attachments/assets/143877b5-0cd2-4097-92c8-5cec272db937" />
 
-<img width="99" height="90" alt="124 sin título_20261116063317" src="https://github.com/user-attachments/assets/15b0fcfd-c6fd-4d6f-9d7e-c3f71e9a86dd" /> 
+<img width="99" height="90" alt="124 sin título_20261116063317" src="https://github.com/user-attachments/assets/15b0fcfd-c6fd-4d6f-9d7e-c3f71e9a86dd" />  $\color{#3bc0cc}{\normalsize{\texttt{𝐍𝐚𝐦𝐢  . ᥲᥒყ ρrᥒ }}}$
