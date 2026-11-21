@@ -10,7 +10,7 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
 
 <img width="731" height="60" alt="blue" src="https://github.com/user-attachments/assets/143877b5-0cd2-4097-92c8-5cec272db937" />
 
-<img width="1418" height="636" alt="124 sin título_20261117105736" src="https://github.com/user-attachments/assets/b4b1b23b-c8ef-4b60-b5ff-baf753190b03" />
+<img width="1418" height="636" alt="124 sin título_20261120183100" src="https://github.com/user-attachments/assets/a514a9aa-d0aa-413c-9d31-255e40679a61" />
 
 <img width="520" height="16" alt="edneyn" src="https://github.com/user-attachments/assets/ffec84ca-573b-43ca-bc5f-fcfba59a11cb" />
 
