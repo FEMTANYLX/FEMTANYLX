@@ -14,6 +14,23 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
 
 <img width="520" height="16" alt="edneyn" src="https://github.com/user-attachments/assets/ffec84ca-573b-43ca-bc5f-fcfba59a11cb" />
 
+<details>
+  <summary> ﹕﹒About me</summary>
+
+  Hii, you can call me Nami or Cyruz ! I go by any/all prns but i prefer both masculine and femenine ♡
+  
+  I'm really shy, i don't often talk or i just don't talk at all.
+  
+  I do love making friends! but it's really hard to keep on a conversation.
+  
+  Please just have a little patience with me,,
+
+I'm also quite sensitive, i highly get uncomfortable with alot of topics/certain people, please iwc always
+
+I do enjoy cuddling, c+h freely anytime! (except if i have any dni!) 
+
+</details>
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jhsym3vrkp7y2gyje4ry3vov2y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=c41681&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
