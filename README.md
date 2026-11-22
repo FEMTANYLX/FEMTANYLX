@@ -6,7 +6,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=&weight=100&size=35&pause=10&color=63D9CD&background=D6386E26&vCenter=true&width=640&height=60&lines=wh%E1%A5%B1%E1%A5%92+th%E1%A5%B1+%E1%A5%A3%CE%B9ght+%CE%B9s+r%CF%85%E1%A5%92%E1%A5%92%CE%B9%E1%A5%92g+%E1%A5%A3ow;%E1%A5%B2%E1%A5%92d+th%E1%A5%B1+sh%E1%A5%B2dows+st%E1%A5%B2rt+to+grow;%E1%A5%B2%E1%A5%92d+th%E1%A5%B1+%CF%81%E1%A5%A3%E1%A5%B2%E1%A5%B4%E1%A5%B1s+th%E1%A5%B2t+%E1%83%A7o%CF%85+k%E1%A5%92ow;s%E1%A5%B1%E1%A5%B1m+%E1%A5%A3%CE%B9k%E1%A5%B1+f%E1%A5%B2%E1%A5%92t%E1%A5%B2s%E1%83%A7;th%E1%A5%B1r%E1%A5%B1's+%E1%A5%B2+.+.+.;%E1%A5%A3%CE%B9ght+%CE%B9%E1%A5%92s%CE%B9d%E1%A5%B1+%E1%83%A7o%CF%85r+so%CF%85%E1%A5%A3;th%E1%A5%B2t's+st%CE%B9%E1%A5%A3%E1%A5%A3+sh%CE%B9%E1%A5%92%CE%B9%E1%A5%92g+%CE%B9%E1%A5%92+th%E1%A5%B1+%E1%A5%B4o%E1%A5%A3d;w%CE%B9th+th%E1%A5%B1+tr%CF%85th;th%E1%A5%B1+%CF%81rom%CE%B9s%E1%A5%B1+%CE%B9%E1%A5%92+o%CF%85r+h%E1%A5%B1%E1%A5%B2rts;do%E1%A5%92't+forg%E1%A5%B1t%2C;%CE%B9'm+w%CE%B9th+%E1%83%A7o%CF%85+%CE%B9%E1%A5%92+th%E1%A5%B1+d%E1%A5%B2rk+.)](https://git.io/typing-svg)
 
 
-$\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.atabook.org) $\color{#3bc0cc}{\normalsize{\texttt{𝐀𝐭𝐚𝐛𝐨𝐨𝐤 . }}}$ $\color{#db449a}{\normalsize{\texttt{‎𓏼𐂯 .  𓂃 .}}}$ [𖹭 ֶָ֢](https://tsunqmii.straw.page) $\color{#3bc0cc}{\normalsize{\texttt{𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞 .}}}$
+$\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.atabook.org) $\color{#3bc0cc}{\normalsize{\texttt{新𝐛𝐨𝐨𝐤 . }}}$ $\color{#db449a}{\normalsize{\texttt{‎𓏼𐂯 .  𓂃 .}}}$ [𖹭 ֶָ֢](https://tsunqmii.straw.page) $\color{#3bc0cc}{\normalsize{\texttt{𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞 .}}}$
 
 <img width="731" height="60" alt="blue" src="https://github.com/user-attachments/assets/143877b5-0cd2-4097-92c8-5cec272db937" />
 
