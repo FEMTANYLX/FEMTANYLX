@@ -28,7 +28,8 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
   $\color{#db449a}{\normalsize{\texttt{I'm really shy, i sometimes yap/ramble}}}$
   $\color{#3bc0cc}{\normalsize{\texttt{or just don't talk at all.}}}$
   
-  $\color{#3bc0cc}{\normalsize{\texttt{I do love making friends! but it's really hard to keep on a conversation.}}}$
+  $\color{#3bc0cc}{\normalsize{\texttt{I do love making friends!}}}$
+  $\color{#3bc0cc}{\normalsize{\texttt{but it's really hard to keep on a conversation.}}}$
   
 $\color{#db449a}{\normalsize{\texttt{Please just have a little}}}$ $\color{#3bc0cc}{\normalsize{\texttt{patience}}}$ with me,,
 
