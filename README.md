@@ -25,7 +25,7 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
   $\color{#3bc0cc}{\normalsize{\texttt{close friend, i will get uncomfortable}}}$
   $\color{#db449a}{\normalsize{\texttt{and i block/hide freely.}}}$
   
-  $\color{#db449a}{\normalsize{\texttt{I'm really shy, i sometimes yap/ramble or i just don't talk at all.}}}$
+  $\color{#db449a}{\normalsize{\texttt{I'm really shy, i sometimes yap or i just don't talk at all.}}}$
   
   $\color{#3bc0cc}{\normalsize{\texttt{I do love making friends! but it's really hard to keep on a conversation.}}}$
   
