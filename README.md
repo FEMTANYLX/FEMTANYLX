@@ -18,7 +18,8 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
   <summary> $\color{#3bc0cc}{\normalsize{\texttt{﹕﹒About me}}}$</summary>
 
   $\color{#db449a}{\normalsize{\texttt{Hii, you can call me}}}$ $\color{#3bc0cc}{\normalsize{\texttt{Nami}}}$ or  $\color{#3bc0cc}{\normalsize{\texttt{Cyruz !}}}$ $\color{#db449a}
-  {\normalsize{\texttt{I go by any/all prns but i prefer both masculine and femenine pronouns ♡}}}$
+  {\normalsize{\texttt{I go by any/all prns but i prefer}}}$
+  $\color{#db449a}{\normalsize{\texttt{masculine}}}$ and $\color{#3bc0cc}{\normalsize{\texttt{femenine}}}$ pronouns ♡
 
   $\color{#3bc0cc}{\normalsize{\texttt{I'm taken!! Do not }}}$ $\color{#db449a}{\normalsize{\texttt{TRY}}}$ $\color{#3bc0cc}{\normalsize{\texttt{to joke or genuinely flirt with me if you aren't a close friend of mine, i will get uncomfortable and i block/hide freely.}}}$
   
