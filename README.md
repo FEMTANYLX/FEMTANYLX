@@ -19,7 +19,7 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
 
   $\color{#db449a}{\normalsize{\texttt{Hii, you can call me}}}$ $\color{#3bc0cc}{\normalsize{\texttt{Nami}}}$ or  $\color{#3bc0cc}{\normalsize{\texttt{Cyruz !}}}$ $\color{#db449a}{\normalsize{\texttt{I go by any/all prns but i prefer both masculine and femenine pronouns ♡}}}$
 
-  I'm taken!! Do not TRY to joke or genuinely flirt with me if you aren't a close friend of mine, i will get uncomfortable and i block/hide freely.
+  $\color{#3bc0cc}{\normalsize{\texttt{I'm taken!! Do not }}}$ $\color{#db449a}{\normalsize{\texttt{TRY}}}$ $\color{#3bc0cc}{\normalsize{\texttt{to joke or genuinely flirt with me if you aren't a close friend of mine, i will get uncomfortable and i block/hide freely.}}}$
   
   I'm really shy, i don't often talk or i just don't talk at all.
   
