@@ -17,13 +17,15 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
 <details>
   <summary> ﹕﹒About me</summary>
 
-  Hii, you can call me Nami or Cyruz ! I go by any/all prns but i prefer both masculine and femenine ♡
+  Hii, you can call me Nami or Cyruz ! I go by any/all prns but i prefer both masculine and femenine pronouns ♡
+
+  I'm taken!! Do not TRY to joke or genuinely flirt with me if you aren't a close friend of mine, i will get uncomfortable and i block/hide freely.
   
   I'm really shy, i don't often talk or i just don't talk at all.
   
   I do love making friends! but it's really hard to keep on a conversation.
   
-  Please just have a little patience with me,,
+Please just have a little patience with me,,
 
 I'm also quite sensitive, i highly get uncomfortable with alot of topics/certain people, please iwc always
 
