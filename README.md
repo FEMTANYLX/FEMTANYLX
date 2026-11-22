@@ -21,7 +21,8 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
   {\normalsize{\texttt{I go by any/all prns but i prefer}}}$
   $\color{#db449a}{\normalsize{\texttt{masculine}}}$ and $\color{#3bc0cc}{\normalsize{\texttt{femenine}}}$ pronouns ♡
 
-  $\color{#3bc0cc}{\normalsize{\texttt{I'm taken!! Do not }}}$ $\color{#db449a}{\normalsize{\texttt{TRY}}}$ $\color{#3bc0cc}{\normalsize{\texttt{to joke or genuinely flirt with me if you aren't a close friend of mine, i will get uncomfortable and i block/hide freely.}}}$
+  $\color{#3bc0cc}{\normalsize{\texttt{I'm taken!! Do not }}}$ $\color{#db449a}{\normalsize{\texttt{TRY}}}$ $\color{#3bc0cc}{\normalsize{\texttt{to joke or genuinely flirt with me if you aren't a}}}$
+  $\color{#3bc0cc}{\normalsize{\texttt{close friend, i will get uncomfortable and i block/hide freely.}}}$
   
   $\color{#db449a}{\normalsize{\texttt{I'm really shy, i don't often talk or i just don't talk at all.}}}$
   
