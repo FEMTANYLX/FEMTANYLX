@@ -22,7 +22,8 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
   $\color{#db449a}{\normalsize{\texttt{masculine}}}$ and $\color{#3bc0cc}{\normalsize{\texttt{femenine}}}$ pronouns ♡
 
   $\color{#3bc0cc}{\normalsize{\texttt{I'm taken!! Do not }}}$ $\color{#db449a}{\normalsize{\texttt{TRY}}}$ $\color{#3bc0cc}{\normalsize{\texttt{to joke or genuinely flirt with me if you aren't a}}}$
-  $\color{#3bc0cc}{\normalsize{\texttt{close friend, i will get uncomfortable and i block/hide freely.}}}$
+  $\color{#3bc0cc}{\normalsize{\texttt{close friend, i will get uncomfortable}}}$
+  $\color{#db449a}{\normalsize{\texttt{and i block/hide freely.}}}$
   
   $\color{#db449a}{\normalsize{\texttt{I'm really shy, i don't often talk or i just don't talk at all.}}}$
   
@@ -32,7 +33,7 @@ $\color{#db449a}{\normalsize{\texttt{Please just have a little}}}$ $\color{#3bc0
 
 $\color{#3bc0cc}{\normalsize{\texttt{I'm also quite sensitive}}}$ $\color{#db449a}{\normalsize{\texttt{iwc always}}}$
 
-I do enjoy cuddling, $\color{#db449a}{\normalsize{\texttt{c+h freely anytime!}}}$ $\color{#3bc0cc}{\normalsize{\texttt{(except if i have any dni!) }}}$
+I do enjoy cuddling, $\color{#db449a}{\normalsize{\texttt{c+h freely anytime!}}}$ $\color{#3bc0cc}{\normalsize{\texttt{(except if i have any dni) }}}$
 
 [DNI criteria](https://basic-dni.crd.co)
 </details>
