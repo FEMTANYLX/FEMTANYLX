@@ -21,13 +21,13 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
 
   $\color{#3bc0cc}{\normalsize{\texttt{I'm taken!! Do not }}}$ $\color{#db449a}{\normalsize{\texttt{TRY}}}$ $\color{#3bc0cc}{\normalsize{\texttt{to joke or genuinely flirt with me if you aren't a close friend of mine, i will get uncomfortable and i block/hide freely.}}}$
   
-  I'm really shy, i don't often talk or i just don't talk at all.
+  $\color{#db449a}{\normalsize{\texttt{I'm really shy, i don't often talk or i just don't talk at all.}}}$
   
-  I do love making friends! but it's really hard to keep on a conversation.
+  $\color{#3bc0cc}{\normalsize{\texttt{I do love making friends! but it's really hard to keep on a conversation.}}}$
   
-Please just have a little patience with me,,
+$\color{#db449a}{\normalsize{\texttt{Please just have a little}}}$ $\color{#3bc0cc}{\normalsize{\texttt{patience}}}$ with me,,
 
-I'm also quite sensitive, i highly get uncomfortable with alot of topics/certain people, please iwc always
+$\color{#3bc0cc}{\normalsize{\texttt{I'm also quite sensitive, i highly get uncomfortable with alot of topics/certain people, please}}}$ $\color{#db449a}{\normalsize{\texttt{iwc always}}}$
 
 I do enjoy cuddling, c+h freely anytime! (except if i have any dni!) 
 
