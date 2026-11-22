@@ -27,7 +27,7 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
   
 $\color{#db449a}{\normalsize{\texttt{Please just have a little}}}$ $\color{#3bc0cc}{\normalsize{\texttt{patience}}}$ with me,,
 
-$\color{#3bc0cc}{\normalsize{\texttt{I'm also quite sensitive, i highly get uncomfortable with alot of topics/certain people, please}}}$ $\color{#db449a}{\normalsize{\texttt{iwc always}}}$
+$\color{#3bc0cc}{\normalsize{\texttt{I'm also quite sensitive, i highly getuncomfortable with alot of topics/certain people, please}}}$ $\color{#db449a}{\normalsize{\texttt{iwc always}}}$
 
 I do enjoy cuddling, c+h freely anytime! (except if i have any dni!) 
 
