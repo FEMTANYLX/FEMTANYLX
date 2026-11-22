@@ -15,7 +15,7 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
 <img width="520" height="16" alt="edneyn" src="https://github.com/user-attachments/assets/ffec84ca-573b-43ca-bc5f-fcfba59a11cb" />
 
 <details>
-  <summary> ﹕﹒About me</summary>
+  <summary> $\color{#db449a}{\normalsize{\texttt{﹕﹒About me}}}$</summary>
 
   Hii, you can call me Nami or Cyruz ! I go by any/all prns but i prefer both masculine and femenine pronouns ♡
 
