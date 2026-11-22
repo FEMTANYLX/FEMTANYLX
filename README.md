@@ -29,7 +29,11 @@ I'm also quite sensitive, i highly get uncomfortable with alot of topics/certain
 
 I do enjoy cuddling, c+h freely anytime! (except if i have any dni!) 
 
-</details> 
+[DNI criteria](https://basic-dni.crd.co)
+</details>
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jhsym3vrkp7y2gyje4ry3vov2y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=c41681&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 <img width="1494" height="452" alt="126 sin título_20261120182903" src="https://github.com/user-attachments/assets/7392c808-baa6-4294-a06b-ee946d18ae1d" />
