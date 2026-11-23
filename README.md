@@ -37,7 +37,7 @@ $\color{#3bc0cc}{\normalsize{\texttt{I'm also quite sensitive}}}$ $\color{#db449
 
 I do enjoy cuddling, $\color{#db449a}{\normalsize{\texttt{c+h freely anytime!}}}$ $\color{#3bc0cc}{\normalsize{\texttt{(except if i have any dni) }}}$
 
-Please respect my boundaries, i do not tolerate any disrespect toward me 
+Please respect my boundaries, i do not tolerate any disrespect toward me .
 
 [DNI criteria](https://basic-dni.crd.co)
 </details>
