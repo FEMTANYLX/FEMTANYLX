@@ -45,7 +45,7 @@ Please respect my boundaries, i do not tolerate any disrespect toward me :/
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jhsym3vrkp7y2gyje4ry3vov2y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=c41681&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<img width="50" height="50" alt="78e47542" src="https://github.com/user-attachments/assets/3070718c-9439-45ba-aa5e-7e92fa4ab644" /> <img width="150" height="20" alt="v40" src="https://github.com/user-attachments/assets/ade14410-b7b0-4769-a2de-10913c6c0dbf" /> <img width="150" height="20" alt="l5" src="https://github.com/user-attachments/assets/cb32bb5d-3c45-4491-a957-9a5d4f43545b" />
+<img width="50" height="50" alt="78e47542" src="https://github.com/user-attachments/assets/3070718c-9439-45ba-aa5e-7e92fa4ab644" /> <img width="150" height="20" alt="v40" src="https://github.com/user-attachments/assets/ade14410-b7b0-4769-a2de-10913c6c0dbf" />
 
 
 
