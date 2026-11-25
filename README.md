@@ -42,11 +42,9 @@ Please respect my boundaries, i do not tolerate any disrespect toward me :/
 [DNI criteria](https://basic-dni.crd.co)
 </details>
 
+<img width="150" height="20" alt="dfveiqp-546ebe41-82f1-4490-bb6d-606a1cc387f2" src="https://github.com/user-attachments/assets/5aed4ae2-a9fb-4373-8360-858cfaf2565a" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jhsym3vrkp7y2gyje4ry3vov2y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=c41681&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
-<img width="50" height="50" alt="78e47542" src="https://github.com/user-attachments/assets/3070718c-9439-45ba-aa5e-7e92fa4ab644" /> <img width="150" height="20" alt="v40" src="https://github.com/user-attachments/assets/ade14410-b7b0-4769-a2de-10913c6c0dbf" />
-
 
 
 <img width="1494" height="452" alt="126 sin título_20261120182903" src="https://github.com/user-attachments/assets/7392c808-baa6-4294-a06b-ee946d18ae1d" />
