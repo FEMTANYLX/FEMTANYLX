@@ -26,10 +26,6 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
   $\color{#3bc0cc}{\normalsize{\texttt{I'm taken!! Do not }}}$ $\color{#db449a}{\normalsize{\texttt{TRY}}}$ $\color{#3bc0cc}{\normalsize{\texttt{to joke or genuinely flirt with me if you aren't a}}}$
   $\color{#3bc0cc}{\normalsize{\texttt{close friend, i will get uncomfortable}}}$
   $\color{#db449a}{\normalsize{\texttt{and i block/hide freely.}}}$
-  
-  $\color{#db449a}{\normalsize{\texttt{I'm really shy, i sometimes yap/ramble}}}$
-  $\color{#3bc0cc}{\normalsize{\texttt{or just don't talk at all.}}}$
-  
 
 
 
