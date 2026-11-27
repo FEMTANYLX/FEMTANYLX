@@ -35,8 +35,6 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
   
 $\color{#db449a}{\normalsize{\texttt{Please just have a little}}}$ $\color{#3bc0cc}{\normalsize{\texttt{patience}}}$ with me,,
 
-$\color{#3bc0cc}{\normalsize{\texttt{I'm also quite sensitive}}}$ $\color{#db449a}{\normalsize{\texttt{iwc always}}}$
-
 Please respect my boundaries, i do not tolerate any disrespect toward me :/
 
 [DNI criteria](https://basic-dni.crd.co)
