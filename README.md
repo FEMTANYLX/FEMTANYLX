@@ -20,7 +20,6 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
   {\normalsize{\texttt{I go by any/all prns but i prefer}}}$
   $\color{#db449a}{\normalsize{\texttt{masculine}}}$ and $\color{#3bc0cc}{\normalsize{\texttt{femenine}}}$ pronouns ♡
 
-<img width="45" height="35" alt="Tumblr-l-202329667620993" src="https://github.com/user-attachments/assets/2680d3b3-cfe5-4e3e-bc50-20cf2ea3fd0f" />
 <img width="45" height="35" alt="Tumblr-l-202307727223189" src="https://github.com/user-attachments/assets/32a26c62-95a8-4eb9-91bf-bac2135940f4" />
 
 Please respect my boundaries, i do not tolerate any disrespect toward me :/
