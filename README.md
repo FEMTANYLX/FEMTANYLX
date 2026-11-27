@@ -14,12 +14,7 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
 <img width="520" height="16" alt="edneyn" src="https://github.com/user-attachments/assets/ffec84ca-573b-43ca-bc5f-fcfba59a11cb" />
 
 <details>
-  <summary>﹕﹒About me</summary>
-
-  $\color{#db449a}{\normalsize{\texttt{Hii, you can call me}}}$ $\color{#3bc0cc}{\normalsize{\texttt{Nami}}}$ or  $\color{#3bc0cc}{\normalsize{\texttt{Cyruz !}}}$ $\color{#db449a}
-  {\normalsize{\texttt{I go by any/all prns but i prefer}}}$
-  $\color{#db449a}{\normalsize{\texttt{masculine}}}$ and $\color{#3bc0cc}{\normalsize{\texttt{femenine}}}$ pronouns ♡
-
+  <summary>﹕﹒About 
 
 Please respect my boundaries, i do not tolerate any disrespect toward me :/
 
