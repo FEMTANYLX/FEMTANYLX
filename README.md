@@ -14,8 +14,6 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
 <img width="520" height="16" alt="edneyn" src="https://github.com/user-attachments/assets/ffec84ca-573b-43ca-bc5f-fcfba59a11cb" />
 
 
-[DNI criteria](https://basic-dni.crd.co)
-</details>
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jhsym3vrkp7y2gyje4ry3vov2y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=c41681&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
