@@ -1,5 +1,4 @@
 
-<img width="531" height="20" alt="4b2d52cb" src="https://github.com/user-attachments/assets/68f655df-3b2b-4618-a3b1-0d6e6a4ee942" />
 
 <img width="1494" height="1067" alt="Honami♡_20261120182053" src="https://github.com/user-attachments/assets/db202de3-ec44-4780-9aaa-a1d953d35d01" />
 
