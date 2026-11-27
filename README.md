@@ -30,8 +30,7 @@ $\color{#db449a}{\normalsize{\texttt{੭﹕𓂃 }}}$ [𑄝.](https://tsunqmi.ata
   $\color{#db449a}{\normalsize{\texttt{I'm really shy, i sometimes yap/ramble}}}$
   $\color{#3bc0cc}{\normalsize{\texttt{or just don't talk at all.}}}$
   
-  $\color{#3bc0cc}{\normalsize{\texttt{I do love making friends!}}}$
-  $\color{#3bc0cc}{\normalsize{\texttt{but it's really hard to keep on a conversation.}}}$
+
 
 
 Please respect my boundaries, i do not tolerate any disrespect toward me :/
